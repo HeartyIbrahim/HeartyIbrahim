@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects related to automation, RPA, MERN stack development, and software development.
 
-📫 How to reach me: shaikhibrahim78617860@gmail.com
+📫 How to reach me: [shaikhibrahim78617860@gmail.com](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile)
 
 😄 Pronouns: He/Him
 
